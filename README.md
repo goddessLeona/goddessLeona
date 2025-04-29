@@ -1,6 +1,6 @@
 Hi every one, I am Petra or Leona <br>
 My interests are the environmental, music and the erotic sceane.<br>
-I’m currently learning JavaScript in school.<br>
+I’m currently learning Java Spring in school.<br>
 Not looking to collaborate right now.<br>
 <br>
 😄 Pronouns: Human
